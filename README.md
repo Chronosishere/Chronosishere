@@ -4,6 +4,6 @@ Hi there buddy, Myself @Chronosishere
 
 I’m currently learning about Cybersecurity and different language (ofcourse computer)
 
-You can reach me through e-mail ayushsachan1222@gmail.com. 
+You can reach me through t/Chronosishere
 
 See you anytime
